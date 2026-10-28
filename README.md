@@ -18,6 +18,6 @@
 <a href="https://discord.com/users/972155686651822152"/><img width="80" height="80" alt="Alt text" src="Untitled138_20261028101310.png" />
 
 ᵐʸ ᵗᵉᵉᵗʰ ʷⁱˡˡ ᵒⁿˡʸ ᶜᵘᵗ ʸᵒᵘʳ ˡⁱᵖˢ, ᵐʸ ᵈᵉᵃʳ.
- 
+ <br>
  <div align="center">
  <img width="900" height="400" alt="Alt text" src="Untitled135_20261028100644.png" /> <br>
