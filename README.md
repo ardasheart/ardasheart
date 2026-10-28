@@ -3,7 +3,7 @@
 
 ![](https://komarev.com/ghpvc/?username=ardasheart&color=b2a49f&label=ᨳଓ.)
 
- <img align="right" width="500" height="500" alt="Alt text" src="Untitled138_20261028101502.png" /> <a href="https://solidarity.atabook.org/"><img width="80" src="Untitled138_20261028101258.png"/> <br>
+ <img align="right" width="570" height="570" alt="Alt text" src="Untitled138_20261028101502.png" /> <a href="https://solidarity.atabook.org/"><img width="80" src="Untitled138_20261028101258.png"/> <br>
 
 ᴵ'ᵛᵉ ᵍʳᵒʷⁿ ᵃ ᵐᵒᵘᵗʰ ˢᵒ ˢʰᵃʳᵖ ᵃⁿᵈ ᶜʳᵘᵉˡ
 
